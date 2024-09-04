@@ -5,3 +5,5 @@ Please subscribe to my YT, I really want to unlock monetization.
 Anyways, enough about my YT channel, please, have a nice day! Stay safe. And stay hydrated!
 
 Have fun!
+
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQZ3_yoCc--6SFjIfacmHvYGVLsuHujAIOoVg&s"><img> 
